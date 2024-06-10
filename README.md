@@ -13,5 +13,5 @@
 
       Bueno Generalmente me gusta trabajar en estos softwares; 
       
- ![rbx](https://github.com/EstebanIbz/Portafolio-2024/assets/69483001/cf5d1105-c371-4ff6-bb69-c816a664b00d)  ![images](https://github.com/EstebanIbz/Portafolio-2024/assets/69483001/b52ccf08-5109-4f08-abbb-2a4ad608d990)
+ ![rbx](https://github.com/EstebanIbz/Portafolio-2024/assets/69483001/cf5d1105-c371-4ff6-bb69-c816a664b00d) ![images-Photoroom (1)](https://github.com/EstebanIbz/Portafolio-2024/assets/69483001/f63f33bc-56de-4eca-a8ba-7de8bf234ea0)
 
